@@ -3,7 +3,7 @@
 
 
 
-紧急通知，有事找这个qq：3465128906
+紧急通知，咨询打包，请加qq：2106582164
 
 自选购http://t.cn/ReWL3E7
 
@@ -56,7 +56,7 @@
 苹果手机PDF损坏(点击解决)https://upload-images.jianshu.io/upload_images/12061232-e5abadbacfacf92d.jpeg
 
 
-不管你有没有问题，一定要加qq3465128906
+不管你有没有问题，一定要加咨询打包，请加qq：2106582164
 
 
 
